@@ -1,2 +1,3 @@
-https://Tatiyana-N.github.io/rsschool-cv/cv
+https://Tatiyana-N.github.io/rsschool-cv/
+
 
